@@ -26,3 +26,6 @@ LIKHA MOLINO ELEMENTARY SCHOOL
 ## SKILLS
 - Adaptability
 - Customer Service
+
+## REFERENCE
+- HexeCalibre | LGU BACOOR
